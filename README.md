@@ -6,7 +6,7 @@ I believe in the power of storytelling to connect people and spark change.
 
 ---
 
-## 🛠Skills & Tools
+## Skills & Tools
 - **Media Production**
 - **Photography**
 - **Filmmaking**
